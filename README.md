@@ -84,6 +84,10 @@ is350
 
 https://modsfire.com/71doqNLxMi8M4ON
 
+is350 نسخه ثانيه
+
+https://www.dropbox.com/scl/fi/631to8niqe3e0efjrlf3g/Lexus_IS350.zip?rlkey=ka0umqfn36ptuigh6q4fdg8q8&st=r1z6zbja&dl=0
+
 كيا k8
 
 https://modsfire.com/UB692I7KcYJy947
@@ -103,3 +107,47 @@ https://modsfire.com/20py72ibsVDoJqQ
 
 https://modsfire.com/6RrAVtv20pOb3DN
 
+رنج روفر
+
+https://www.dropbox.com/scl/fi/6nw7pdd83r6ib6ci9ecir/Range-Rover-2024.zip?rlkey=ycogjt0ki4nis2160l7gxp9nb&st=y3i83ztu&dl=0
+
+الانترا ٢٠٢٥
+https://www.dropbox.com/scl/fi/uepw4chcp9nz4sgfdcgw3/Elantra-L5FI.zip?rlkey=67fcup9nk7o77b78o99eeatap&st=oqww1a8o&dl=0
+
+
+LX570 2017
+
+https://www.dropbox.com/scl/fi/ux9x4jt866r8on63b3h46/LX570_2017_KHwylD.zip?rlkey=wqfptpeajhtlz38ek1gdq7osu&st=i4r8s3bi&dl=0
+
+LX570 2024
+
+https://www.dropbox.com/scl/fi/9i96k5ofjvkgrzxp85jww/LX570-L5FI.zip?rlkey=b92qko5uqwy1jqc77yfyk8q05&st=ihjwc449&dl=0
+
+
+سيلفرادو ٢٠٢٠
+
+https://www.dropbox.com/scl/fi/hp1jf15uxi0qhk9t5h01e/Silverado_2020_UAE4.zip?rlkey=sjwmm361z49xrm6z05zal5dj1&st=5z8m51v2&dl=0
+
+
+
+تاهو 2025
+
+https://www.dropbox.com/scl/fi/qu48ge8chuohn7v7k80m0/2_K_tahoe2025.zip?rlkey=rcqhmu5o94408c7wuvsljbvzo&st=dom6fwe7&dl=0
+
+
+كامري ٢٥
+
+https://www.dropbox.com/scl/fi/rokl26s6i6cpa58zddtd7/Toyota-Camry-2025.zip?rlkey=oyxyo5kj5jnh708uuvxs5nfsz&st=xm32bdyd&dl=0
+
+تورس بوليسي 2008
+
+https://www.dropbox.com/scl/fi/8d4w8s49ky04pm7illbcz/Ford-Taurus-2008-2019.zip?rlkey=5306jdmu5c0hekxfulnaciwte&st=ns7ssfz2&dl=0
+
+
+سييرا ٢٣
+
+https://www.dropbox.com/scl/fi/d5ac5v757d1j22axn9qec/Lonley-sierra-23-26.zip?rlkey=xchru5wkbige3hy9bz9vwajsy&st=16ebw70p&dl=0
+
+باترول ٢٥
+
+https://www.dropbox.com/scl/fi/0cjp5ubjk2o0l7jrw7lg8/RM_Patrol.zip?rlkey=661p8k0qggt8j44ner65blx3u&st=w1m6hst5&dl=0
