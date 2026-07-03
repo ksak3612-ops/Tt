@@ -151,3 +151,10 @@ https://www.dropbox.com/scl/fi/d5ac5v757d1j22axn9qec/Lonley-sierra-23-26.zip?rlk
 باترول ٢٥
 
 https://www.dropbox.com/scl/fi/0cjp5ubjk2o0l7jrw7lg8/RM_Patrol.zip?rlkey=661p8k0qggt8j44ner65blx3u&st=w1m6hst5&dl=0
+
+
+لاند ٢٠٢٤
+https://www.modland.net/beamng.drive-mods/cars/toyota-land-cruiser-7.html
+
+لاند ٢٠٢٤
+https://www.modland.net/beamng.drive-mods/cars/land-cruiser-lc-300-2022-25.html
