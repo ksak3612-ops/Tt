@@ -158,3 +158,7 @@ https://www.modland.net/beamng.drive-mods/cars/toyota-land-cruiser-7.html
 
 لاند ٢٠٢٤
 https://www.modland.net/beamng.drive-mods/cars/land-cruiser-lc-300-2022-25.html
+
+
+كامري ٢٠٢٢ 
+https://modsfire.com/u3V8BZrpeO061S2
